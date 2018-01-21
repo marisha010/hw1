@@ -20,6 +20,7 @@ __я закончила музыкальную школу__
 - люблю панд. Давайте спасем панд вместе!
 ****
 [ссылка](https://pandarina.com/panda_facts)
+****
 [панды просто прекрасны](https://www.belnovosti.by/sites/default/files/article/03-07-2017/kakie-zvuki-izdaet-panda-slushat-golos-pandy-sweetpanda.ru_.ru_.jpg)
 #### любимая еда
 * итальянская кухня
